@@ -1,4 +1,4 @@
-# 
+# توربو geckoterminal sniper bot وظائف إضافية لـ Mac OS | أصلي geckoterminal sniper bot وظائف إضافية لـ PC Windows. مع حساب الربح و اكتشاف الفخاخ — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
